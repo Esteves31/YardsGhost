@@ -12,4 +12,4 @@ Try to escape to the while rescuing your lost balls.
 
 link for Itch.io: https://ghost-31.itch.io/yards-ghost
 
-If you play the game and enjoy or not, please, leave your opinion about the game. ✌️✌️
+If you play the game and enjoy or not, please, leave your opinion about the game, this is very important! ✌️✌️
