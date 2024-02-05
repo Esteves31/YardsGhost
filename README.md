@@ -8,7 +8,7 @@ balls and decide to rescue the lost balls, but is faced with a
 frightening element.
 Try to escape to the while rescuing your lost balls.
 
-## 🛠 Relax, wait for a minute! I'm building this game. 🛠
+## Download and play the Yard's Ghost:
 
 link for Itch.io: https://ghost-31.itch.io/yards-ghost
 
