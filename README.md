@@ -10,5 +10,5 @@ Try to escape to the while rescuing your lost balls.
 
 ## 🛠 Relax, wait for a minute! I'm building this game. 🛠
 
-link for Itch.io:
+link for Itch.io: https://ghost-31.itch.io/yards-ghost
 
